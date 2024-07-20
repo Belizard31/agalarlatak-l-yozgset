@@ -1,0 +1,2 @@
+# agalarlatak-l-yozgset
+amblblgaşgaşgaş
